@@ -7,6 +7,7 @@
 ## http://www.esl-lounge.com/student/grammar/1g179-elementary-prepositions-of-time-multiple-choice.php
 # Appearance
 ## https://sites.google.com/site/topicsforkids/people
+## http://chagall-col.spip.ac-rouen.fr/IMG/didapages/description/index.html
 ## https://learnenglishkids.britishcouncil.org/en/archived-word-games/make-the-sentences/people-and-appearance
 ## https://agendaweb.org/vocabulary/describing-people-personality.html
 ## http://www.esltower.com/VOCABQUIZ/describing%20physical%20appearances/describing%20physical%20appearances.html
